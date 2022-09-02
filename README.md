@@ -25,4 +25,4 @@ Here are some ideas to get you started:
 - 😄 man
 - ⚡ !
 ###
-![1.png](https://pfmanage.ytshy.net/uploads/images/dangjian/202209/02/dj_1662097608_ZWeExN7PPG.png)
+![1.png](https://pfmanage.ytshy.net/uploads/images/dangjian/202209/02/dj_1662097940_XYXbtYXDpX.gif)
