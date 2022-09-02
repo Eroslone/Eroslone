@@ -1,5 +1,6 @@
-### Hi there 👋你说会记得我还记得吗?
-
+### Hi Eros 👋
+"After all this time?"
+"Always"
 <!--
 **Eroslone/Eroslone** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
