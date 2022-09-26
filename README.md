@@ -22,7 +22,7 @@ If you like [Bleach],we are friends.😄😄😄
 - 🤔 be
 - 💬 a
 - 📫 better
-- 😄 man
+- 😄 me
 - ⚡ !
 ###
 ![1.png](https://pfmanage.ytshy.net/uploads/images/dangjian/202209/02/dj_1662097940_XYXbtYXDpX.gif)
